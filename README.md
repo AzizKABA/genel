@@ -1,3 +1,3 @@
 # genel
 
-[ATAP.pdf](https://github.com/user-attachments/files/17229515/ATAP_AYRILMA.pdf)
+[TÜBİTAK_1512.pdf](https://github.com/user-attachments/files/17240490/TUBITAK_1512.pdf)
